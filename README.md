@@ -1,0 +1,2 @@
+# muinsafelinku
+safelinku
